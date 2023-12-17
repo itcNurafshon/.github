@@ -36,4 +36,4 @@ Dasturlashga qiziqqan yoshlar uchun ta'lim maskani. O'quv markazimizda turli xil
 Savollar bormi yoki yordam kerakmi? Bizga murojaat qiling:
 
 - Email: [centerit.nurafshon@gmail.com](mailto:centerit.nurafshon@gmail.com)
-- Ko'proq ma'lumot uchun [vebsaytimizga](https://www.itc-nurafshon) tashrif buyuring.
+- Ko'proq ma'lumot uchun [vebsaytimizga](https://www.itc-nurafshon.uz/) tashrif buyuring.
